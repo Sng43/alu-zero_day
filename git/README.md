@@ -1,1 +1,1 @@
-just stress know
+why just stress know
